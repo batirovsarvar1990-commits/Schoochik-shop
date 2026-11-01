@@ -1,0 +1,2 @@
+# Schoochik-shop
+Garelka
